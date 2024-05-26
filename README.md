@@ -5,3 +5,4 @@
 - 📫 How to reach me? my discord name is "tower guy noise" if you want to chat! 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: my first game may be bad, but hey, its a work in progress.
+my galaxy username is "Stupidity".
